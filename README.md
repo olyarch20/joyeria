@@ -1,4 +1,4 @@
-Joyeía Diamante
+Joyería Diamante
 
 ------------
 
